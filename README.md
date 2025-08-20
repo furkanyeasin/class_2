@@ -1,1 +1,1 @@
-Live Preview link:- https://furkanyeasin.github.io/class_6/
+Live Preview link:- https://furkanyeasin.github.io/class_2/
